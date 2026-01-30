@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @loredesigns
+- 👋 Hi, I’m @lauraria
 - 👀 I’m interested in ... design engineering, OOUX design, accessibility, AI agents, permaculture design, and sustainability!
 - 🌱 I’m currently learning ... all of the above!
-- 💞️ I’m looking to collaborate on ... outdoor industry projects
+- 💞️ I’m looking to collaborate on ... sports technology & women's health
 - 📫 How to reach me ... laurariadesign@gmail.com
 - 😄 Pronouns: ... she/her
 - ⚡ Fun fact: ... I just moved to the mountains!
